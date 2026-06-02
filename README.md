@@ -135,7 +135,7 @@ This policy will be updated when the app's functionality changes. The latest ver
 
 ## 8. Contact
 
-Questions, feedback, privacy concerns: **philipp.moor@gmx.ch**
+Questions, feedback, privacy concerns: **absatz.onyxe5o@icloud.com**
 
 ---
 
